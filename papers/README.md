@@ -1,1 +1,1 @@
-PDFs of courseworks and theses.
+PDFs of coursework, theses, and written academic work.
